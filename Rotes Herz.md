@@ -1,6 +1,6 @@
 ---
 created: 2026-08-04T11:13:13+02:00
-modified: 2026-08-04T11:22:46+02:00
+modified: 2026-08-04T12:05:29+02:00
 ---
 
 # Rotes Herz
@@ -14,7 +14,7 @@ Zugegeben, diese Auffassung ist seltsam – man mag es anders nennen –, aber w
 Die neue Kapelle ist ein sehr schönes Steingebäude, sauber weiß getüncht; sie soll die alte ersetzen, die einsturzgefährdet ist. Die Rehberger bauen viel daran und schließen sie gewissenhaft ab; sie hat mich nicht berührt, mein ganzes Herz, meine ganze Hingabe gehört der alten; wenn ich ihren Einsturz noch erlebe, wird ihr Ende wohl genauso viel Kummer und Schmerz bringen wie das Ende so vieler Dinge in dieser Gegend, die ich in meiner Jugend miterlebt habe.
 
 Als Junge kam ich oft hierher; ich meditierte und betete hier; ich kann nicht beschreiben, welch sanfte, andächtige Stimmung sich hier in meinem Herzen ausbreitete. Ewiger Schatten und majestätischer Frieden herrschten hier unter den alten Fichten, Tannen und Buchen, die dicht wie eine lebende Mauer standen. Dort stehen Fichten und Tannen; nur die glimmenden, dicht moosbedeckten massiven Baumstümpfe künden davon, wo die großen Männer, die Zeugen vergangener Zeiten, die unbezwingbaren Widersacher der Zeit, in den Himmel aufstiegen. Nur die Buchen blieben mit ihren weißlichen Stämmen zurück, stellenweise von dunkelgrünem Moos überwuchert; doch das Ende naht für diese letzten Überreste der Pracht des Waldes: Die Bauern, denen der Wald gehört, brauchen Geld, und die Streichholzfabriken benötigen allerlei Gebrauchsgegenstände aus Buchenholz. Die angebotenen Dinge interessierten mich sehr; sie ließen meinen jungen Geist über das menschliche Elend nachdenken. Hier lagen auch viele Gegenstände herum, deren Bedeutung mir nicht klar war, darunter ein großes, grob aus Holz geschnitztes Herz, mit leuchtend rotem Ton bemalt und an einem Rosenkranz mit groben schwarzen Perlen aufgehängt. Was hatte der Stifter dieser Gabe von der Allerheiligsten Jungfrau erbeten? Hatte er es hier aufgehängt, um der Himmelskönigin für ihre Heilung von einem Herzleiden zu danken? – Gut möglich, aber ich war mir damals nicht sicher, und so vergaß ich diese Herzangelegenheit bald wieder. Als ich zwei Jahre später nach Rehberg zurückkehrte – ich war damals etwa sechzehn Jahre alt –, führte mich einer meiner Ausflüge zur Hauswaldkapelle; ein Bauernjunge, viel älter als ich, begleitete mich. Plötzlich sah ich im Moos und zwischen den Heidelbeersträuchern nahe der Kapelle etwas, das halb vergrabene Erinnerungen in mir weckte: Dort lag ein hölzernes Herz, aber es war nicht mehr rot, denn der Regen hatte die Farbe abgewaschen. Ich hob es auf und zeigte es meinem Begleiter. Er nahm es mir aus der Hand und warf es so lange, bis es an einem nahegelegenen Baumstamm zerschellte. „Ein Fluch haftet daran“, sagte er, „deshalb haben wir es aus der Kapelle geworfen. Fass es nicht an.“ Und dann erzählte er mir eine Geschichte, deren Einzelheiten andere hinzugefügt hatten.
-----
+
 In einem stillen Häuschen lebte ein armes Mädchen, das – Gott weiß nach wessen Großvater – Steinzen-Agnes hieß. Wir nennen sie einfach Agnes. Als ich das rote Herz in der Kapelle zum ersten Mal sah, war sie bereits über zwanzig Jahre alt, also in einem Alter, in dem Frauen in unserem Land, wenn nicht verheiratet, so doch zumindest einen Liebhaber haben, mit dem sie eine Affäre beginnen, die meist in der Ehe endet. Hat eine Frau keines von beidem, gilt das als schlechtes Omen, und die Sprache der Menschen verfällt in allerlei verwirrende, boshafte Anspielungen auf körperliche Mängel oder moralische Verkommenheit, die in dem oft geäußerten Satz gipfeln, dass sie „keinen Hintern“ habe. Das sagte man nicht über Agnes, aus einem ganz einfachen Grund: Obwohl sie körperlich wohlgenährt war und durchaus den Charme besaß, den junge Männer anziehen, war sie geistig etwas einfältig, und die Jungen machten sich über ihre allerlei Vergnügungen lustig, aber keiner von ihnen ging eine ernsthafte Beziehung mit ihr ein. Und doch war Agnes' Herz warm, und sie sehnte sich wie alle ihre Kameraden nach Liebe. Sie war völlig wertlos; ihre Mutter lebte zwar noch, hatte aber nicht nur kurz nach ihrer Geburt und nach dem Tod ihres Vaters einen anderen Mann geheiratet, sondern war auch kränklich und halbblind. Ihr Stiefvater kümmerte sich nicht sonderlich um Agnes, außer wenn in stillen Nächten ganze Horden von Teenagern an seinem Häuschen am einsamen Hang des Suchý vrch auftauchten. Die Bengel gaben vor, Agnes wie üblich auf den Dachboden zu besuchen, und machten dabei absichtlich einen Höllenlärm, neckten den Hund, blökten wie verliebte Ziegen, miauten wie Katzen, riefen nach dem Mädchen – kurzum, sie störten schamlos die Nachtruhe, bis der alte Mann, außer sich vor Wut, auf den Damm stürmte und wie ein Wahnsinniger fluchte und schimpfte. Die drastischen Spitznamen, die er ihnen gab, waren eine unerschöpfliche Quelle unbändiger Heiterkeit für die gutmütigen Racker. Agnes bewahrte bei diesen nächtlichen Besuchen völlige Zurückhaltung. Sie zeigte sich nicht, lachte nicht, wurde nicht wütend, sprach nicht; wahrscheinlich dachte sie sich auch nichts dabei, oder vielleicht war sie nicht einmal überrascht, dass ihr Stiefvater, nachdem die ungebetenen Herren gegangen waren, sie mit allen möglichen Schimpfwörtern überhäufte, die ihm seine wütende Fantasie einfiel; die arme Agnes machte sich nicht einmal den Kopf über längere Gedanken. Aber Agnes war nicht taub. Wäre in dem Lärm, der ihren Stiefvater so sehr ärgerte, auch nur eine einzige Stimme zu ihr durchgedrungen, hätte sie den Kater für ein himmlisches Konzert gehalten; aber Adam Pezl, ein Bürger von Sonnberg (das Dorf Sonnberg gehörte bis vor kurzem zur Gemeinde Rehberk), war nicht ein einziges Mal unter den nächtlichen Schreihälsen; wer weiß, vielleicht wäre sie nicht hinausgelaufen, hätte sie seine Stimme erkannt. Adam war in Agnes' Augen ein höheres Wesen; Sie sah ihn an, als wäre er der Erzengel Michael, dessen Bild sie in einer Kapelle gesehen hatte. Adam neckte sie nie wie andere; wann immer sie schüchtern und zögernd den Ballsaal betrat, reichte er ihr sein Glas; tatsächlich hatte er schon zweimal mit ihr getanzt, obwohl sie in einem Kreis sprang, der wie ein von einem Erdbeben in Bewegung gesetzter Ofen wackelte. Dies waren Momente unbeschreiblichen Glücks für sie, aus denen die einzigen Erinnerungen ihres Lebens entsprangen. Wann immer sie Adam ansah, öffnete sich ihr Mund zu einem seligen Lächeln.Mit der Mutter Natur sie reichlich und weitreichend ausgestattet hatte, und wenn er zu ihr sprach, schien seine Stimme, die andere Sterbliche an das Knarren eines ungeölten Wagens erinnerte, ihr wie der Gesang von Engelschören.
 
 Adam war ein gutmütiger Kerl, doch er hatte wenig Erfolg bei den Schönheiten der Berge, obwohl er ein Häuschen und einen kleinen Bauernhof besaß und zudem zu den einheimischen Industriellen zählte. Er hatte zwar ein eigenes Unternehmen, das ihm jedoch kein Stimmrecht bei den Wahlen zur Handelskammer sicherte und für das er vermutlich keine Steuern zahlte, aber er war dennoch ein Industrieller.
@@ -83,46 +83,3 @@ Die menschliche Gerechtigkeit hatte ihr Urteil über diese arme, vom Schicksal g
 Kann man solch dreifach unglücklichen Menschen den Glauben nehmen? Menschliche Gerechtigkeit. Am Anfang, noch Mitte der sechziger Jahre, wurde das schöne Gewand, das heute meiner geliebten königlichen Sušica steht, erst beschnitten. Das Gerüst, das die Natur der Stadt gab, war natürlich dasselbe; dieselbe reine Otava, die murmelnd durch ein grünes, stets lächelndes Tal floss; derselbe majestätische Svatobor, schwarz im Rokokostil thronend, glänzend auf einem hohen Hügel, dessen Hänge, bedeckt mit Schwarzkiefern und grünen Laubbäumen, direkt aus dem Fluss zu entspringen schienen; Auen voller Freude ober- und unterhalb der Stadt; gewundene alte Wasserläufe und größere und kleinere Gräben und Nebenarme, die vom Hauptstrom abzweigten, dazwischen grüne Inseln hier und da, bedeckt mit Bäumen und dichtem Gebüsch, entlang des Flusses all die kleinen, sandigen, kargen Hügel, charakteristisch für die gesamte Pootava-Region; Man könnte meinen, das ganze Tal sei in Urzeiten in wogender Bewegung gewesen, bis die Hand des Herrn sich erhob und die Wellen plötzlich erstarrten, wüsste man nicht, dass diese Hügel im Laufe der Jahrhunderte von Menschenhand geformt wurden, indem sie den goldhaltigen Sand des Flusses sieben ließen. Die natürliche Struktur ist dieselbe, aber die Stadt! Einige Häuser waren nach dem großen Brand in den 1930er Jahren recht neu, die meisten jedoch, besonders in den Vororten, wirkten ziemlich heruntergekommen; die Straßen waren uneben, voller Schlaglöcher und Schlamm, hier ein Haus kühn im Vordergrund, dort ein anderes schüchtern zurückweichend, vielleicht aus Scham und Furcht, damit die Leute nicht über sein grobes Dach und seine unebenen, hervorstehenden Fenster lachten; selbst auf dem Platz gurgelten schmutzige Pfützen, bedeckt mit grünen Froschhäuten, in denen Enten und Gänse spielten; auf dem Pflaster, nur hier und da entlang der Häuser, fanden sich unschöne Spuren von Hühneraugen.
 
 Wie sehr sich doch alles verändert hat! Mein Sušice sieht jetzt aus, als wäre es aus einer Schachtel genommen worden, und was von dem alten übrig ist, hat einen ehrwürdigen, edlen Charakter, wie alte, vom Alter vergilbte Spitze auf der Seidentoilette einer schönen Dame.
-
-Karte
-
-Zurück zur vorherigen Seite
-
-
-
-
-Kontakt
-Karel Klostermann
-Schriftsteller Böhmerwald zs
-tschechische Sektion
-
-Srní 113
-341 94 Srní
-Tschechien
-
-info@klostermann.cz
-Mobil: +420602106982
-Anfragen
-Leer lassen
-Jméno
-E-mail či adresa
-Váš dotaz či poptávka
-Deutsche Abteilung
-Karl Klostermann – Dichter des Böhmerwaldes ev
-bayer. Sektion Grafenau
-
-Rosenauerstraße 5
-94481 Grafenau
-www.karl-klostermann.de
-
-Šumava und Bayerischer Wald
-Šumava
-
-
-Tourismus
-Unterkunftsübersichten
-Interaktive Karten
-Webcams
-Fotogalerie, alte Šumava
-   
-Webdesign und Hosting: ŠumavaNet.CZ
